@@ -1,3 +1,0 @@
-# Abddulbasit Arynov
-
-## Contacts
